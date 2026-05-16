@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://highwaychainshack.github.io/cross-margin-trading-xw40/ ) |
  |---------------------|----------------------:|
 
 
