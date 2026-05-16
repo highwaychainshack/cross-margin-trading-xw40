@@ -1,4 +1,4 @@
-# 
+# elite cross-margin trading bot Module | API-integration + position-sizing offers the most advanced cross-margin trading bot, with API-integration and position-sizing. Ideal for
 
 
 
